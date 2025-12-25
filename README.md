@@ -1,4 +1,4 @@
-# LABORATORY-ASSISTANT---REDEEMER-S-UNIVERSITY
+# LABORATORY-ASSISTANT---REDEEMER'S UNIVERSITY
 Johnson Oyetunji is a technically skilled professional who supports teaching, research, and analytical activities by preparing, conducting, and supervising laboratory experiments. My role involves setting up practical sessions, maintaining laboratory equipment, ensuring compliance with health, safety, and environmental standards, and assisting students and researchers in applying theoretical concepts through hands-on experimentation. I demonstrate strong competence in sample preparation, reagent handling, data recording, and basic analytical techniques, with the ability to troubleshoot experimental procedures and equipment. I also contribute to accurate documentation, inventory control, and quality assurance, while fostering a safe, organized, and conducive learning environment.
 
 ## SCHOOL-BASED ACTIVITIES 3:
