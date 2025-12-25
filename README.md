@@ -65,3 +65,6 @@ As **a Laboratory Assistant / Practical Demonstrator**, I'm a professionally com
 * I incorporate digital tools, simulations, and modern teaching aids where appropriate.
 * I adapt laboratory activities to accommodate diverse learners and resource constraints.
 
+### Conclusion
+
+As a laboratory assistant/practical demonstrator, I combine strong scientific knowledge, technical expertise, safety awareness, and effective teaching support to serve as a vital bridge between theory and practice, enhancing students’ learning experiences while ensuring laboratory operations are safe, efficient, and academically balanced.
